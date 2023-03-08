@@ -1,3 +1,3 @@
 # MTH448
 
-![1](/JA.jepg)
+![1](https://github.com/githuberuser/MTH448/blob/main/JA.jpeg)
