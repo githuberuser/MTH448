@@ -2,5 +2,5 @@
 
 ![1](https://github.com/githuberuser/MTH448/blob/main/JA.jpeg)
 
-## [Josh Allen Highlight](https://youtu.be/a3Z7zEc7AXQ).
+## [Josh Allen Highlights](https://youtu.be/a3Z7zEc7AXQ).
 
