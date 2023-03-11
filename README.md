@@ -1,4 +1,4 @@
-# MTH448 (Do not scroll down)
+# MTH448 
 
 
 ## [Josh Allen Highlights](https://youtu.be/a3Z7zEc7AXQ).
